@@ -2,6 +2,9 @@
 https://rubeleco.by/ - Кирпич облицовочный в Минске
 
 https://rubeleco.ru/ - Кирпич облицовочный в Москве
+
 https://ict-online.ru/news/n219837/ - Новинка в облицовке фасадов | Гиперпрессованный кирпич облицовочный
+
 https://materialyinfo.ru/bloki-besser/ - Новая технология в строительстве заборов – блоки бессер
+
 http://www.know-house.ru/avtor/0041/decorative_blocks.html - Декоративные гиперпрессованные блоки для забора: быстро и качественно
