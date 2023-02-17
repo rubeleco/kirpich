@@ -12,6 +12,8 @@ https://rubeleco.ru/ - Кирпич облицовочный в Москве.
 
 Источник: http://www.know-house.ru/avtor/0041/decorative_blocks.html - Декоративные гиперпрессованные блоки для забора: быстро и качественно.
 
+Источник:http://www.know-house.ru/inf_build18/brick_facing.html - Выбираем кирпич облицовочный - соотношение цены и качества
+
 Источник: https://www.masterovoi.ru/dekorativnyy-betonnyy-blok - Декоративный бетонный блок - как современный строительный материал.
 
 Источник: https://zhodinonews.by/2021/04/28/materialy-dlya-zabora-iz-chego-vygodnee-stavit-ograzhdenie/ - Материалы для забора: из чего выгоднее ставить ограждение?
