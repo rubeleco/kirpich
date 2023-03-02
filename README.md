@@ -58,5 +58,10 @@ https://telegraf.news/2016/04/8/319712-vibiraem-dekorativnii-kirpich-plitku-dlya
 Источник: http://www.dal.by/news/149/11-06-15-1/ - Выбираем строительный материал для забора. 
 
 Источник: https://kvartirakrasivo.ru/articles/id-preimuwestva-fasadnoj-plitki/ - Преимущества фасадной плитки.
-
-
+Источник: https://www.masterovoi.ru/giperpressovannye-kirpichi - Гиперпрессованные кирпичи – прочные и высокосортные строительные материалы
+Источник: http://www.know-house.ru/inf_build18/brick_facing.html - Выбираем кирпич облицовочный - соотношение цены и качества
+Источник: http://www.linkstroy.ru/articles/stroitelstvo-i-montazh/kladka-sten-s-oblicovkoy-licevym-kirpichom.html - Кладка стен с облицовкой лицевым кирпичом
+Источник: https://prihoz.ru/articles/full/ogrady_zabory_2018/kirpichnyyz/ - КАК ПРАВИЛЬНО СДЕЛАТЬ КИРПИЧНЫЙ ЗАБОР ДЛЯ ДАЧИ
+Источник: http://www.stroy-list.ru/art/view_art/8375 - Гиперпрессованный лицевой кирпич: эксплуатационные качества и сфера использования
+Источник: http://www.stroy.rusopt.ru/publicinfo/otdelochnye-raboty/sposoby-oblicovki-kirpichnoy-pechi.html - Способы облицовки кирпичной печи
+Источник: 
